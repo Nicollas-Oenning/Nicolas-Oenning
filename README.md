@@ -8,4 +8,4 @@ Meu nome é Nicollas Oenning🥶🥶
 
  -VAI CR7 🇵🇹🗿
 
-![](https://media1.tenor.com/m/iXzuU99WmF8AAAAd/ycro.gif)
+![](https://github.com/user-attachments/assets/612d5782-809c-4ba8-8246-7abe02f2b29e)
