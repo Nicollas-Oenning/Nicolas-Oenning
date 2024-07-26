@@ -2,8 +2,8 @@
 
 Meu nome é Nicollas Oenning🥶🥶
 
--Moro no Brasil 🇧🇷😩
+ -Moro no Brasil 🇧🇷😩
 
--Sou Corinthiano🖤🤍
+ -Sou Corinthiano🖤🤍
 
--VAI CR7 🇵🇹🗿
+ -VAI CR7 🇵🇹🗿
